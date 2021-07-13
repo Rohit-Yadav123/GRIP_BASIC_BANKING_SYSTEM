@@ -17,8 +17,8 @@ Home Page >> View all Customers >> Select and View one Customer >> Transfer Mone
 
 Hosting Platform> 000Webhost
 
-Project Link >> 
+Project Link >> https://rohitkumar2000.000webhostapp.com/
 
-My Profile >> 
+My Profile >> https://www.linkedin.com/in/rohit-kumar-yadav-31679716a/
 
-Youtube:: 
+Youtube >>
